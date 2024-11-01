@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... OSCILLATING mega blast DOUBLE COUPLINGS 
 - 💞️ I’m looking to collaborate on ... sustainable development KITTY KOMBAT+BLAÇK BÉAUTY cryptocurrency 
 - 📫 How to reach me ... fearlessupstairs47@gmail.com
-- 😄 Pronouns: ...ariana conner 
+- 😄 Pronouns: ... miss alexectra magneta ariana conner 
 - ⚡ Fun fact: ...rabbits are mammals and i am not a hamster 
 
 <!---
