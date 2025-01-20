@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Alexectramagneta
-- 👀 I’m interested in ... ham radio wheels kombat hamster MEGA BLAST+PYTHON+C+KITTY+PUTTY 
+- 👋 Hi, I’m Ariana
+- 👀 I’m interested in ... hamradio wheels kombathamsterPYTHON+C+KITTY
 - 🌱 I’m currently learning ... OSCILLATING mega blast DOUBLE COUPLINGS 
 - 💞️ I’m looking to collaborate on ... sustainable development KITTY KOMBAT cryptocurrency 
 - 📫 How to reach me ... 02044939614
