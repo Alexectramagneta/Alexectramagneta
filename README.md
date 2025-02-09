@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Ariana
-- 👀 I’m interested in ... hamradio wheels kombathamsterPYTHON+C+KITTY
-- 🌱 I’m currently learning ... OSCILLATING mega blast DOUBLE COUPLINGS 
+- 👀 I’m interested in... science/physics cosmology space
+- 🌱 I’m currently learning ...  
 - 💞️ I’m looking to collaborate on ... sustainable development KITTY KOMBAT cryptocurrency 
-- 📫 How to reach me ... 02044939614
+- 📫 How to reach me ... 0224939614
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ✨ 
 
