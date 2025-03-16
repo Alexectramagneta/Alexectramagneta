@@ -1,9 +1,9 @@
-- 👋 Hi, I’m Ariana
-- 👀 I’m interested in ... hamradio wheels kombathamsterPYTHON+C+KITTY
-- 🌱 I’m currently learning ... OSCILLATING mega blast DOUBLE COUPLINGS 
-- 💞️ I’m looking to collaborate on ... sustainable development KITTY KOMBAT cryptocurrency 
-- 📫 How to reach me ... 02044939614
-- 😄 Pronouns: ...she/her
+- 👋 Hi, I’m Ariana-ROSE-MOON 
+- 👀 I’m interested in ... sShesSceince-code-stringtheory-astrophysics-schrodinger's-cat
+- 🌱 I’m currently learning ...linguistics-magnetism-conciouness-[JUP-meow]
+- 💞️ I’m looking to collaborate on ...-world-peace-love-TECH/COMMUNICATION-
+- 📫 How to reach me ...codedArts@outlook.com
+- 😄 Pronouns: ...she/her\thou
 - ⚡ Fun fact: ✨ 
 
 <!---
