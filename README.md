@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...linguistics-magnetism-conciouness-[JUP-meow]
 - 💞️ I’m looking to collaborate on ...peace-love-TECH/COMMUNICATION-
 - 📫 How to reach me ... fearlessupstairs47@gmail.com
-- 😄 Pronouns: ...she/her
+- 😄 Pronouns: ...she/her/interplanetery
 - ⚡ Fun fact: ✨ 
 
 <!---
