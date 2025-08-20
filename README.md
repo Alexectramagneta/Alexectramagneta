@@ -1,9 +1,9 @@
-- 👋 Hi, I’m Ariana-ROSE-MOON 
+- 👋 Hi, I’m Ariana-rose
 - 👀 I’m interested in ... sShesSceince.x-code-stringtheory-astrophysics-schrodinger's-cat
 - 🌱 I’m currently learning ...linguistics-magnetism-conciouness-[JUP-meow]
-- 💞️ I’m looking to collaborate on ...peace-love-TECH/COMMUNICATION-
+- 💞️ I’m looking to collaborate on ...peace-love-TECH/COMMUNICATION-sceince-cosmology
 - 📫 How to reach me ... fearlessupstairs47@gmail.com
-- 😄 Pronouns: ...she/her/interplanetery
+- 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ✨ 
 
 <!---
