@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ariana-rose
+- 👋 Hi, I’m Ariana Rose Conner
 - 👀 I’m interested in ... Science.x-code-stringtheory-astrophysics-schrodinger's-cat
 - 🌱 I’m currently learning ...linguistics-magnetism-consciousness-[JUP-meow]
 - 💞️ I’m looking to collaborate on ...peace-love-TECH/COMMUNICATION-science-cosmology
