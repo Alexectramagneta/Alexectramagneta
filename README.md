@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ariana Rose Conner
-- 👀 I’m interested in ... Science.x-code-stringtheory-astrophysics-schrodinger's-cat
+- 👀 I’m interested in ... sShesSceince.x-code-stringtheory-astrophysics-schrodinger's-cat
 - 🌱 I’m currently learning ...linguistics-magnetism-consciousness-[JUP-meow]
 - 💞️ I’m looking to collaborate on ...peace-love-TECH/COMMUNICATION-science-cosmology
 - 📫 How to reach me ... fearlessupstairs47@gmail.com
